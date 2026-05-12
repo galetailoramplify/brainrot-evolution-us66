@@ -1,4 +1,4 @@
-#  
+#  custom brainrot evolution Script is the best brainrot evolution Script, featuring no clip and god mode. Safe and powerful for all your needs.
 
 
 
